@@ -6,4 +6,4 @@
 
 転：
 
-結：
+結：Yes!! We are WWCode Tokyo :)
